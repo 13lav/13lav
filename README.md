@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **lavsaini013@gmail.com**
 
-- 📄 Know about my experiences [drive.google.com/file/d/1mlDRSd2Cwb6yjK81mJgMtH2zoIeIYRxV/view?usp=sharing](drive.google.com/file/d/1mlDRSd2Cwb6yjK81mJgMtH2zoIeIYRxV/view?usp=sharing)
+- 📄 Know about my experiences [Resume Link](drive.google.com/file/d/1mlDRSd2Cwb6yjK81mJgMtH2zoIeIYRxV/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
