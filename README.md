@@ -5,13 +5,13 @@
 
 - 👯 I’m looking to collaborate on **Full Stack Projects.**
 
-- 👨‍💻 All of my projects are available at [github.com/13lav](github.com/13lav)
+- 👨‍💻 All of my projects are available at [github.com/13lav](https://github.com/13lav)
 
 - 💬 Ask me about **Web/Software Development, Movies**
 
 - 📫 How to reach me **lavsaini013@gmail.com**
 
-- 📄 Know about my experiences [Resume Link](drive.google.com/file/d/1mlDRSd2Cwb6yjK81mJgMtH2zoIeIYRxV/view?usp=sharing)
+- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1mlDRSd2Cwb6yjK81mJgMtH2zoIeIYRxV/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
